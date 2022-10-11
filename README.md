@@ -3,4 +3,4 @@
 
 
 Link to the dashboard
-https://rpubs.com/luccan97/952898
+https://www.canva.com/design/DAFOuuDexjk/71WxRb1hwKZoFuzt9XXvcQ/view
